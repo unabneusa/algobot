@@ -1,0 +1,27 @@
+
+ 
+# Windows 9 Extreme Edition: A Modded Version of Windows 10 Technical Preview
+ 
+Windows 9 Extreme Edition is a modded version of Windows 10 Technical Preview that was created by a group of enthusiasts who wanted to bring back some features from Windows 7 and 8.1, such as the Start Menu, the Aero Snap, and the windowed Metro apps. The mod also includes some new features, such as a Docking Controller Application, a zPC settings app, and a new Lock Screen.
+ 
+**DOWNLOAD ✪✪✪ [https://t.co/4VSMYYl9ay](https://t.co/4VSMYYl9ay)**
+
+
+ 
+The mod is based on Windows 9 Technical Preview build 9838/45, which was leaked online in 2014. The modders have updated the installer, the network icon, the command line, and some icons and wallpapers. They have also added Japanese language support and fixed some bugs and flaws. The mod requires a product key that is suitable from Windows 8.x.
+ 
+Windows 9 Extreme Edition is available in both 32-bit and 64-bit versions. The modders have also made a website where they share their updates and changes. The website can be accessed at clck.ru/XUoxP. However, they warn that there may be errors with the languages in the installation and they recommend installing in Japanese.
+ 
+Windows 9 Extreme Edition is not an official release from Microsoft and it may contain viruses or malware. Users who want to try it should do so at their own risk and backup their data before installing. The mod may also violate Microsoft's terms of service and intellectual property rights.
+ 
+Users who are interested in downloading Windows 9 Extreme Edition can find it on the Internet Archive at https://archive.org/details/windows\_9. The file size is about 3.5 GB and it can be downloaded as a torrent or as an ISO image.
+ 
+windows 9 extreme edition iso download free,  windows 9 extreme edition iso magnet link,  windows 9 extreme edition iso crack,  windows 9 extreme edition iso full version,  windows 9 extreme edition iso direct link,  windows 9 extreme edition iso torrentz2,  windows 9 extreme edition iso kickass,  windows 9 extreme edition iso rarbg,  windows 9 extreme edition iso 1337x,  windows 9 extreme edition iso pirate bay,  windows 9 extreme edition iso file size,  windows 9 extreme edition iso system requirements,  windows 9 extreme edition iso activation key,  windows 9 extreme edition iso product key,  windows 9 extreme edition iso serial number,  windows 9 extreme edition iso installation guide,  windows 9 extreme edition iso features,  windows 9 extreme edition iso review,  windows 9 extreme edition iso screenshots,  windows 9 extreme edition iso video tutorial,  windows 9 extreme edition iso update patch,  windows 9 extreme edition iso virus scan,  windows 9 extreme edition iso safe download,  windows 9 extreme edition iso verified torrent,  windows 9 extreme edition iso seeders leechers ratio,  windows 9 extreme edition iso torrent speed,  windows 9 extreme edition iso torrent quality,  windows 9 extreme edition iso torrent health,  windows 9 extreme edition iso torrent comments,  windows 9 extreme edition iso torrent rating,  windows 9 extreme edition iso torrent alternatives,  windows 9 extreme edition iso torrent proxy list,  windows 9 extreme edition iso torrent mirror sites,  windows 9 extreme edition iso torrent unblocked sites,  windows 9 extreme edition iso torrent vpn service,  windows 9 extreme edition iso torrent downloader software,  windows 9 extreme edition iso torrent extractor software,  windows 9 extreme edition iso torrent burner software,  windows 9 extreme edition iso torrent mounter software,  windows 9 extreme edition iso torrent emulator software,  windows 9 extreme edition iso torrent player software,  windows 9 extreme edition iso torrent converter software,  windows 9 extreme edition iso torrent editor software,  windows 9 extreme edition iso torrent optimizer software,  windows 9 extreme edition iso torrent cleaner software,  windows 9 extreme edition iso torrent repair software,  windows 9 extreme edition iso torrent backup software,  windows 9 extreme edition iso torrent recovery software,  windows 9 extreme edition iso torrent security software
+  
+Windows 9 Extreme Edition is not only a modded version of Windows 10 Technical Preview, but also a competitor to Intel's Core X-Series processors, such as the Core i9-10980XE Extreme Edition, the Core i9-9980XE Extreme Edition, and the Core i9-7980XE Extreme Edition. These processors are also designed for high-end desktop users who need extreme performance for multi-threaded workloads.
+ 
+However, Intel's Core X-Series processors are much more expensive than Windows 9 Extreme Edition. The Core i9-10980XE costs $979, the Core i9-9980XE costs $1,999, and the Core i9-7980XE costs $1,999 as well. These prices are much higher than the $3.5 GB file size of Windows 9 Extreme Edition. Moreover, Intel's Core X-Series processors may not offer the best value for money compared to AMD's Ryzen Threadripper processors, which offer similar or better performance for less money and support more PCI Express lanes.
+ 
+Therefore, Windows 9 Extreme Edition may appeal to some users who want to experience a modded version of Windows 10 Technical Preview with some features from Windows 7 and 8.1, without spending a fortune on Intel's Core X-Series processors. However, users should be aware of the risks and limitations of using an unofficial and potentially unsafe mod that may not work well with their hardware and software.
+ 8cf37b1e13
+ 
